@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **saniyamulla3036@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IdUbYrDan3BSujvYGgTp7PLFJqL-PHP2/view?usp=sharing](https://drive.google.com/file/d/1IdUbYrDan3BSujvYGgTp7PLFJqL-PHP2/view?usp=sharing)
-
 - ⚡ Fun fact **I am funny 😅**
 
 <h3 align="left">Connect with me:</h3>
